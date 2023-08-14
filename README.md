@@ -3,6 +3,6 @@ A mi apartado de git en este aparatdo va a encontrar mis proyectos realizado tan
 💻🖱️🥴🤓
 ## Enlaces:
 * [Facebook](https://www.facebook.com/profile.php?id=100075860742408)
-* [Tiwtte]
+* [Tiwtte](https://twitter.com/Josbotzoc30)
 * [Youtube]
 
